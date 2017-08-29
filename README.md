@@ -5,3 +5,4 @@ I love art
 I am from Utah 
 My mom is from Argentina
 My dad is from Spain
+I have 2 cats
